@@ -1,0 +1,2 @@
+# loyihalarimm
+loyiha
